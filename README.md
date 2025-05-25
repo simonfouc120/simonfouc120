@@ -1,4 +1,4 @@
-I'm Simon Foucambert, a 25 yo nuclear engineer ⚛️
+I'm Simon Foucambert, a 26 yo nuclear engineer ⚛️
 
 General abilities : Nuclear measures, nuclear simulation, instrumentation
 
